@@ -1,11 +1,8 @@
-![570b8d6b0cda2a720774acb86c2ff3a8](https://github.com/user-attachments/assets/7b812fd5-1b59-4858-b079-7d6055a845c6)
+![Untitled571_20250223002446](https://github.com/user-attachments/assets/cb0519e4-4f5d-46fb-a4d7-119197c11d9c)
+<sub> kencagerose is canon !
 
+![tumblr_e2f82b8366ab95e1c6df9293020680e0_d951cd3b_500](https://github.com/user-attachments/assets/1b3e832e-00dd-433f-b89b-23ac410bd37a)
 
-<sup> *ouhhh my husband.. hes so handsome... ohhhhh... i love him so much <3*
+![Untitled565_20250222185149](https://github.com/user-attachments/assets/d2057ec2-2cdc-4247-8d82-6832977fdea7)
 
-![tumblr_e2f82b8366ab95e1c6df9293020680e0_d951cd3b_500](https://github.com/user-attachments/assets/2819d169-b560-4c93-93b0-24a8e7dee25b)
-
-
-<sup> Literally Soldier Boy's husband<33 (its canon im one of the papers in the script for The Boys)  
-
-![12367703_e8195](https://github.com/user-attachments/assets/88c56707-dc8a-465c-a448-c6539faf03cb)
+<sub> literally Johnny Cage's + Soldier Boy's husband and Kenshi's fiancé <3 I love my handsome boys !!!
