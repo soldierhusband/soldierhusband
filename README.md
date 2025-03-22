@@ -1,8 +1,17 @@
-![Untitled571_20250223002446](https://github.com/user-attachments/assets/cb0519e4-4f5d-46fb-a4d7-119197c11d9c)
-<sub> kencagerose is canon !
+![20250317_054354](https://github.com/user-attachments/assets/ece6fbac-aab6-491c-acce-59b53693e2ab)
 
-![tumblr_e2f82b8366ab95e1c6df9293020680e0_d951cd3b_500](https://github.com/user-attachments/assets/1b3e832e-00dd-433f-b89b-23ac410bd37a)
+<p align="center">
+<sub> — ` If taking drugs is 'uncool' , I'm the most uncool motherfucker on the planet ! `
+  
+<p align="center"> ...
+  
+<p align="center"><sub>Soldier Boy kisser !! He's literally my husband... <33
 
-![Untitled565_20250222185149](https://github.com/user-attachments/assets/d2057ec2-2cdc-4247-8d82-6832977fdea7)
+![New Drawing (1)](https://github.com/user-attachments/assets/a572a922-6935-4746-b332-6602a188806c)
+<p align="right"> <sub> I don't need any reality checks , while I believe the fact that I'm dating him , I'm also aware that he's fictional. Thanks.
 
-<sub> literally Johnny Cage's + Soldier Boy's husband and Kenshi's fiancé <3 I love my handsome boys !!!
+<p align="center"> ...
+
+<p align="center"> <sub> I'm usually accepting of others interacting with me but , I also have my own limits , so please avoid interacting with me if you ship Soldier Boy with anyone , this is purely for my own comfort.
+
+![8358b4d655db83377187fad9662d7776](https://github.com/user-attachments/assets/32e5373a-5863-47c6-bc4e-14bea535610f)
