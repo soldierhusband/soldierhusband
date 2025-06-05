@@ -14,6 +14,6 @@
 
 <p align="center"> ...
 
-<p align="center"> <sub> I'm usually accepting of others interacting with me but , I also have my own limits , so please avoid interacting with me if you ship Soldier Boy with anyone , this is purely for my own comfort.
+<p align="center"> <sub> I'm usually accepting of others interacting with me but , I also have my own limits , so please avoid interacting with me if you ship Soldier Boy with anyone or if you yume him , this is purely for my own comfort.
 
 ![3920d125204b31bd8eff9db88387856b](https://github.com/user-attachments/assets/57c6829e-d4b7-4179-abe0-2b0f8747132c)
