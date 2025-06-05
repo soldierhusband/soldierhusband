@@ -1,4 +1,4 @@
-<p align="center">DON'T INTERACT WITH ME IF YOU YUME SOLDIER BOY. I'M HEAVILY NON-SHARING.
+
 
 ![Untitled155_20250506180418_polarr](https://github.com/user-attachments/assets/1105ae18-8f1c-4551-a6f9-1ced249a2555)
 
