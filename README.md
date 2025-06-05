@@ -1,3 +1,5 @@
+**DON'T INTERACT WITH ME IF YOU YUME SOLDIER BOY. I'M HEAVILY NON-SHARING.** 
+
 ![20250317_054354](https://github.com/user-attachments/assets/ece6fbac-aab6-491c-acce-59b53693e2ab)
 
 <p align="center">
