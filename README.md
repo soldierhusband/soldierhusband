@@ -1,6 +1,6 @@
 <p align="center">DON'T INTERACT WITH ME IF YOU YUME SOLDIER BOY. I'M HEAVILY NON-SHARING.
 
-![20250317_054354](https://github.com/user-attachments/assets/ece6fbac-aab6-491c-acce-59b53693e2ab)
+![Untitled155_20250506180418_polarr](https://github.com/user-attachments/assets/1105ae18-8f1c-4551-a6f9-1ced249a2555)
 
 <p align="center">
 <sub> — ` If taking drugs is 'uncool' , I'm the most uncool motherfucker on the planet ! `
@@ -16,4 +16,4 @@
 
 <p align="center"> <sub> I'm usually accepting of others interacting with me but , I also have my own limits , so please avoid interacting with me if you ship Soldier Boy with anyone , this is purely for my own comfort.
 
-![8358b4d655db83377187fad9662d7776](https://github.com/user-attachments/assets/32e5373a-5863-47c6-bc4e-14bea535610f)
+![3920d125204b31bd8eff9db88387856b](https://github.com/user-attachments/assets/57c6829e-d4b7-4179-abe0-2b0f8747132c)
