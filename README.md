@@ -1,9 +1,11 @@
 
 
-![Untitled155_20250506180418_polarr](https://github.com/user-attachments/assets/1105ae18-8f1c-4551-a6f9-1ced249a2555)
+![1000034207_polarr](https://github.com/user-attachments/assets/f0a20077-1f62-40a1-908c-e51ceacb1399)
+
 
 <p align="center">
-<sub> — ` If taking drugs is 'uncool' , I'm the most uncool motherfucker on the planet ! `
+<sub> — ` 𝑂ℎ, ℎ𝑒 𝑠𝑎𝑖𝑑 ℎ𝑒'𝑑 𝑐𝑢𝑟𝑒 𝑦𝑜𝑢𝑟 𝑖𝑙𝑙𝑠 ...
+            bυt hᥱ dιdᥒ't ᥲᥒd hᥱ ᥒᥱvᥱr will. `
   
 <p align="center"> ...
   
