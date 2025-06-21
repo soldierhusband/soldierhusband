@@ -1,7 +1,6 @@
 
 
-![1000034207_polarr](https://github.com/user-attachments/assets/f0a20077-1f62-40a1-908c-e51ceacb1399)
-
+![-127qm1](https://github.com/user-attachments/assets/bfa9c188-5ffa-4b08-99b0-4469e3d36537)
 
 <p align="center">
 <sub> — ` 𝑂ℎ, ℎ𝑒 𝑠𝑎𝑖𝑑 ℎ𝑒'𝑑 𝑐𝑢𝑟𝑒 𝑦𝑜𝑢𝑟 𝑖𝑙𝑙𝑠 ...
