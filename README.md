@@ -16,4 +16,5 @@
 
 <p align="center"> <sub> I'm usually accepting of others interacting with me but , I also have my own limits , so please avoid interacting with me if you ship Soldier Boy with anyone or if you yume him , this is purely for my own comfort.
 
-![3920d125204b31bd8eff9db88387856b](https://github.com/user-attachments/assets/57c6829e-d4b7-4179-abe0-2b0f8747132c)
+
+![1b9766a6ae770e30b5709890839740cb](https://github.com/user-attachments/assets/5257de9d-5752-49cb-95f4-a08cbf60b866)
