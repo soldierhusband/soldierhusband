@@ -1,3 +1,6 @@
+<p align="center"> ![20250708_113351](https://github.com/user-attachments/assets/b15f73c5-731e-4132-afc8-92799656c921)
+
+
 <p align="center"> DRAW SOLDIER BOY AND DEAN WINCHESTER OR ANY CHARACTER PLAYED BY JENSEN ACKLES ON MY STRAWPAGE PLEEEASEE !!! ｡ﾟ(ﾟ´Д｀ﾟ)ﾟ｡
 
 ![Untitled155_20250506180418_polarr_1](https://github.com/user-attachments/assets/78d2265a-cac3-4bb9-890f-7d2cdc2ed9d4)
