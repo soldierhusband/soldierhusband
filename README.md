@@ -7,6 +7,9 @@
 
 
 <p align="center"> DRAW SOLDIER BOY AND DEAN WINCHESTER OR ANY CHARACTER PLAYED BY JENSEN ACKLES ON MY STRAWPAGE PLEEEASEE !!! ｡ﾟ(ﾟ´Д｀ﾟ)ﾟ｡
+
+![461406a8d6b1b05bc4aeb5ed36ce3af9](https://github.com/user-attachments/assets/8a007c2c-d33d-42eb-8b92-655a232183e4)
+
   
 <p align="center"><sub>Soldier Boy kisser !! He's literally my husband... <33
 
