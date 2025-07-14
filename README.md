@@ -1,5 +1,6 @@
 
-<p align="center"> **I don't care about what people do fiction wise as I believe in the anti—harrassment and anti—censorship ideologies. If you're those kind of "antis" who constantly talk about ／ harrass proshippers DON'T INTERACT WITH ME. You're fucking insufferable.**   
+<p align="center"> I don't care about what people do fiction wise as I believe in the anti—harrassment and anti—censorship ideologies. If you're those kind of "antis" who constantly talk about ／ harrass proshippers DON'T INTERACT WITH ME. You're fucking insufferable.   
+
 
             
 <img width="2304" height="1042" alt="Untitled96_20250714201733" src="https://github.com/user-attachments/assets/4e50976c-abbd-4f08-a8b6-e3176dcbecc3" />
