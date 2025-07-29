@@ -1,4 +1,4 @@
 
 <p align="center"> ╋━ ◞ rapture , be pure .
 
-![1474c6577ae41edeee1bdd808a14474b](https://github.com/user-attachments/assets/6cde56e5-05b1-4837-809c-851e3ef0c319)
+<img width="1500" height="500" alt="1000000360" src="https://github.com/user-attachments/assets/778d5ee2-eaeb-4c4f-9bc9-f051167fa57d" />
